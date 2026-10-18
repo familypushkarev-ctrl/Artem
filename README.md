@@ -1,2 +1,2 @@
-# Artem
+# Heaven Studio
 Heaven studio
